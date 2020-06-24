@@ -12,7 +12,7 @@ Tiers weist einige bronzezeitliche Besiedlungsspuren auf. Erste schriftliche Bel
 
 ## Sehenswürdigkeiten
 
-Tiers hat eigentliche keine Sehenswürdigkeiten. Der Reiz es Ortes liegt in der Umgebung: Um Tiers sind etwa 500 km Wander- und Radwege markiert.
+Tiers hat eigentliche keine Sehenswürdigkeiten. Der Reiz des Ortes liegt in der Umgebung: Um Tiers sind etwa 500 km Wander- und Radwege markiert.
 
 ## Tipps
 
@@ -22,7 +22,7 @@ Tiers hat eigentliche keine Sehenswürdigkeiten. Der Reiz es Ortes liegt in der 
 * Seiser-Alm
 * Labyrinth-Weg
 * Altstadt von Bozen
-* Ötzi-museum in Bozen
+* Ötzi-Museum in Bozen
 * Die Küche in Südtirol ist ebenso spektakulär wie die Landschaft.
 
 ## Bild
