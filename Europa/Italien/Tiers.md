@@ -1,8 +1,8 @@
 
 # Tiers am Rosengarten
 
-Tiers ist eine kleine Gemeinde in Südtirol. Der Rosengarten ist ein spektakulärer Gebirszug der Dolomiten.
-Der Name _Rosengarten_  wird gern mit der Lage um Zwerg Laurin und der Ferbung der hellgrauen Felswände bei Sonnenuntergang in 
+Tiers ist eine kleine Gemeinde in Südtirol. Der Rosengarten ist ein spektakulärer Gebirgszug der Dolomiten.
+Der Name _Rosengarten_  wird gern mit der Lage um Zwerg Laurin und der roten Färbung der hellgrauen Felswände bei Sonnenuntergang in 
 Verbindung gebracht. 
 Der Ort Tiers liegt auf ca. 700 m Höhe. Er verteilt sich auf drei Siedlungen und mehrere Höfe und hat etwa 1000 Einwohner.
 
